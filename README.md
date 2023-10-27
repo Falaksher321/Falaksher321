@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...you can contact me on email
 - 😜 mfalaksher321@gmail.com
-      and also on this one
+      and also on this one 
        📱 (+92) 3204866320 📱
 
 <!---
